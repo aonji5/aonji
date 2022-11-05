@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @aonji .This is my nickname. I’m Anton Tagirov.
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning course to be Manual QA.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: https://www.instagram.com/aonji5/
+- 
